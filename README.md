@@ -1,1 +1,10 @@
 # Raizes-do-Nordeste
+
+Equipe:
+
+Tiago Sângil Palmeira Lima
+Nalbert de Souza Santana
+Mickael Cedraz Alencar
+Érica Araújo de Jesus
+Monyc Luísa Almeida de Cerqueira
+Pedro César Paixão de Jesus
